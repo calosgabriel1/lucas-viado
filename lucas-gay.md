@@ -1,7 +1,4 @@
 # lucas gay 
-
-# arrombado e ele
-
 # os motivos pro lucas ser arrombado 
 
 - 1 **o nivel de arrombado dele e grande**
